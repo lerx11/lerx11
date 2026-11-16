@@ -60,4 +60,4 @@
 ## 📫 Контакты
 
 - Telegram: [@lex_88](https://t.me/lex_88)
-- Email: Le.aloha@mail.ru
+- Email: world_ph@mail.ru
